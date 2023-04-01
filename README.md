@@ -1,1 +1,0 @@
-# VanzAntiElit.github.io
